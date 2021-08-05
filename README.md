@@ -1,1 +1,1 @@
-# VTEX_Skills_Test_Senior_Technical_Writer-
+# VTEX_Skills_Test_Senior_Technical_Writer
